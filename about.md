@@ -9,7 +9,8 @@ The blog by Xinlian and William on their academic journey in Portugal
 
 ### More Information
 
-It started as Xinlian was granted a Fulbright Scholar in Data Science to work on Data-driven Machine Learning at University of Minho in Braga, Portugal.  
+It started as Xinlian was granted a Fulbright Scholar in Data Science to work on Data-driven Machine Learning at University of Minho in Braga, Portugal. University of Minho has two campuses in Guimaraes and in Gualtar, which is a parish in the municipality of Braga.  Hence, the name of this Blog.
+
 In the mean time, William attends the Colegio Luso Internacional de Braga (CLIB), which is about 17 minutes to the north east of the campus.  
 
 In addition to work and study, we also travel to nearby cities to get exposed to Porugues culture.  In addition to using the mobile app Duolinguo, we also took Portugues lessons from SPEAK.
