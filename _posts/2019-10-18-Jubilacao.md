@@ -16,6 +16,6 @@ With help of Google Translate on my phone, I was able to roughly get what Profes
 
 Dr. Valenca retired as a full professor.  Going through C.V. of the faculty, I learned that there was an extra step called agregacao, which was a comprehensive examination in mid-career.
 
-I skipped the Verde de Honra because I need to pick up William from CLIB.  Verde implies vinho in this context.  Green Wine or Vinho Verde is wine produced in the Minho area where we are.
+The ceremony continued for almost three hours without taking a break.  At the end, I almost couldn't stand up because of my legs.  I skipped the Verde de Honra because I need to pick up William from CLIB.  Verde implies vinho in this context.  Green Wine or Vinho Verde is wine produced in the Minho area where we are.
 
 I missed the bus twice on the way picking up William.  However, our old friend Adriano and Josey kept the padaria open and waited for us with spaghetti they saved for us.
