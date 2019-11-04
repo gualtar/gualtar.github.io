@@ -4,7 +4,7 @@ title: The Atlas
 author: Xinlian
 ---
 
-We selected Casablanca because Morocco was the closet place out of the Schengen Visa area.  We had never heard of Marrakesh before until Dr. Biswas reminded us of it.  Having completed our Morocco trip, we were so lucky to have gone to Marrakesh; otherwise it would be like not having gone to Morocco at all.
+We selected Casablanca because Morocco was the closet place out of the Schengen Visa area.  We had never heard of Marrakesh until Dr. Biswas reminded us of it.  Having completed our Morocco trip, we were so lucky to have gone to Marrakesh; otherwise it would be like not having gone to Morocco at all.
 
 ##The Train Ride
 
