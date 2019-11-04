@@ -36,8 +36,35 @@ Afterwards, we were led to the level beneath which was a huge wash room.
 
 As we walked out of the mosque, the weather was just perfect.
 
-We checked out of our hotel and got another Careem to get to the Casa Voyageurs train station, which was the main train station of Casablanca and was further away from us.  Our captain spoke good English and explained to us the differences between the small red taxis and larger white-and-green taxis.  Red taxis can only go to local destinations while the larger ones can go to other places.  William also observed that the larger ones were kept in better conditions in general.
+We checked out of our hotel and got another Careem to get to the Casa Voyageurs train station, which was the main train station of Casablanca and was further away from us.  Our captain spoke good English and explained to us the differences between the small red taxis and larger white-and-green taxis.  Red taxis can only go to local destinations while the larger ones can go to other places.  William also observed that the larger ones were kept in better conditions in general.  We saw some boys fighting and saw taxi drivers chatting to each other at traffic lights.  However, it was no worse than the condition of some major Chinese cities such as Beijing and Tianjin when I left China over 20 years ago.  We never felt unsafe in China.  Numbers will show Casablanca is a safer place.
 
+## The Train Ride
+
+Our six-seats quarter was occupied by a family of three, an middle-age man, and us.  A young man from France was taking one seat but later moved out as he had no to the adjacent quarter as he had no ticket.  Two hours into our journey, a local old man angrily stopped another young man with American accent, accusing him of cheating him out of his seats.  Obviously the young man told the old man he had a ticket to the same seat.  So far it seemed all the outlaws were foreigners.  There was no air-conditioning.  It was hot.
+
+The little girl was very cute.  She was about four or five years old and was doing homework through the entire journey.  She also tried to practice her English with me.  The old man was sleeping all the way, using a towel to cover his face from the lights.
+
+We crossed the Oum Er-Rbia River, we saw deserts.
+
+![](https://live.staticflickr.com/65535/48997596171_b6dd9dc8c3_z.jpg)
+
+When our train reached Merrakesh station, passengers for the next trip were already waiting to get on.  We quickly departed the carriage.
+
+Careem does not work in Merrakesh.  Just in case, we also tried Uber which did not work.  The taxi in Marrakesh is tricky, as we have been warned by literally every travel site.  From our observation, they operated more like mini-vans that collect passengers on their way.  Or, an endless  Uber-Pool with autonomous-control.  
+
+Thanks to Google Map, we got on the bus, which took us to the Jamaa El Fna stop.  It was as close as we can get to our hotel, a traditional riad embedded deep into the old city or medina.
+
+Getting off our bus, we passed by a small park with plants and flowers, and almost get lost in a big square where we saw people with monkeys and snake charmes with real cobras! They were many sources of competing loud music and we would later learn that they would go on the entire day and night.
+
+## The Riad
+
+While our path following the Google map got narrower and narrower, we wandering around to find our hotel.  A helpful old man sitting at the door of another hotel helped us with directions.
+
+We believe we picked a riad that was most beautiful and we believe many other guests made the selection based on the pictures posted online.  One thing we could say after staying there was that all the pictures did not adequately presented the true beauty and aura of the riad.
+
+## The Souk
+
+## The Square
 
 
 
