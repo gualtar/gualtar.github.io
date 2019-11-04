@@ -11,14 +11,20 @@ We woke up to the magnificence of the Hassan II Mosque from our balcony:
 
 The hotel breakfast was impressive with plenty of various local flavors and made-to-order omelet.  I saw two young women enjoying their breakfast in  very dressy dresses and minutes later saw them again checking-out with 80L daypacks.  Only in Morocco, I guess.
 
-We walked toward the mosque but obviously it was not the common tourists entry.  There were policemen with full-length assault rifles guarding the place.  They saluted to some senior officers as they drove by checking security.
+## The Hassan II Mosque
+
+We walked toward the mosque but obviously it was not the common tourists entry.  There were policemen with full-length assault rifles guarding the place.  They saluted to some senior officers as they drove by checking security.  We saw a large number of armed soldiers and policemen at the airports, rail stations, and palaces.  
 
 The mosque only accept grouped tours.  For those do not come with a tour guide, a guide is provided at certain times in a day.  We arrived at around 9:20.  While waiting for our tour at 10, we visited a small museum at the visitor center.  We saw some tourists entered the museum without purchasing a ticket.  They were located by the security and escorted out of the property.  
 ![](https://live.staticflickr.com/65535/48999486281_2bc176b5a1_z.jpg)
 
 The museum talked about the construction of the mosque with samples of materials and styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.
 
-People were started letting in the mosque when it was close to 10.  They were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.
+![](https://live.staticflickr.com/65535/48998437842_d14e8a29be_z.jpg)
+
+Close to 10, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  From afar, we can see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.
+
+People were started letting in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.
 
 ![](https://live.staticflickr.com/65535/48999692602_458fe862ef_z.jpg)
 
