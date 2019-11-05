@@ -4,35 +4,40 @@ title: As Time Goes By
 author: Xinlian
 ---
 
-Contrary to some online articles, the origin of the name Casablanca is Portuguese, not Spanish.  I was happy to learn that as it seems to make it closer to home.
+Contrary to some online sources, the origin of the name _Casablanca_ is Portuguese, not Spanish.  I was happy to learn about this because it seems to make it closer to home.
 
 We woke up to the magnificence of the Hassan II Mosque from our balcony:
 ![](https://live.staticflickr.com/65535/48994190018_f16d64cc46_z.jpg)
 
-The hotel breakfast was impressive with plenty of various local flavors and made-to-order omelet.  I saw two young women enjoying their breakfast in  very dressy dresses and minutes later saw them again checking-out with 80L daypacks.  Only in Morocco, I guess.
+The hotel breakfast was impressive with plenty of varieties of local flavors and made-to-order omelet.  I saw two young women enjoying their breakfast in very dressy dresses and minutes later saw them again checking-out with 80L daypacks.  Only in Morocco, I guess.
 
 ## The Hassan II Mosque
 
-We walked toward the mosque but obviously it was not the common tourists entry.  There were policemen with full-length assault rifles guarding the place.  They saluted to some senior officers as they drove by checking security.  We saw a large number of armed soldiers and policemen at the airports, rail stations, and palaces.  
+We walked toward the mosque but obviously it was not the common tourists entry.  There were quite some policemen with full-length assault rifles guarding the place.  They saluted to senior officers as they drove around checking security.  We saw a large number of armed soldiers and policemen at the airports, rail stations, and palaces.  
 
-The mosque only accept grouped tours.  For those do not come with a tour guide, a guide is provided at certain times in a day.  We arrived at around 9:20.  While waiting for our tour at 10, we visited a small museum at the visitor center.  We saw some tourists entered the museum without purchasing a ticket.  They were located by the security and escorted out of the property.  
+The mosque only accept grouped tours.  A guide is provided for individual tourists at certain times in a day outside of time to pray.  We arrived at around 9:20 am.  While waiting for our tour at 10, we visited a small museum at the visitor center.  We saw some international tourists entered the museum without purchasing a ticket.  They were located by the security guard and escorted out of the property.  The museum tickets are only a couple of dollars.  You would wonder why did they do that.  Perhaps just because they could.
+
 ![](https://live.staticflickr.com/65535/48999486281_2bc176b5a1_z.jpg)
 
-The museum talked about the construction of the mosque with samples of materials and styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.
+The museum talked about the construction of the mosque with samples of building materials and design styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.
+
+Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  
 
 ![](https://live.staticflickr.com/65535/48998437842_d14e8a29be_z.jpg)
 
-Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  From afar, we can see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.
+From afar, we could see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.  That was where you find the beach of Casablanca, that you can reach by light rail lines.
 
-People were started letting in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.
+People were started letting in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.  "Just don't trust them."
 
 ![](https://live.staticflickr.com/65535/48999692602_458fe862ef_z.jpg)
 
-The main hall is amazing.  It holds 20,000 men, with capacity for additional 5,000 women in a separate hall.  It was deigned by a French architect who was the friend of the king and made of all Morocco materials except the chandeliers and two white columns.  
+The main hall is amazing.  It holds 20,000 men, with capacity for additional 5,000 women in a separate section.  It was deigned by a French architect who was the friend of the king and made of all Morocco materials except the chandeliers and two white columns.  
 
 Afterwards, we were led to the level beneath which was a huge wash room.
 
 ![](https://live.staticflickr.com/65535/48995053913_f6b688c3fc_z.jpg)
+
+Our tour guide gave some final remarks on the steps.  
 
 As we walked out of the mosque, the weather was just perfect.
 
