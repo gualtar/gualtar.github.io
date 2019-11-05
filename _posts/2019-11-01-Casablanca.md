@@ -22,7 +22,7 @@ The museum talked about the construction of the mosque with samples of materials
 
 ![](https://live.staticflickr.com/65535/48998437842_d14e8a29be_z.jpg)
 
-Close to 10, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  From afar, we can see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.
+Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  From afar, we can see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.
 
 People were started letting in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.
 
@@ -48,6 +48,8 @@ We crossed the Oum Er-Rbia River, we saw deserts.
 
 ![](https://live.staticflickr.com/65535/48997596171_b6dd9dc8c3_z.jpg)
 
+## Marrakesh
+
 When our train reached Merrakesh station, passengers for the next trip were already waiting to get on.  We quickly departed the carriage.
 
 Careem does not work in Merrakesh.  Just in case, we also tried Uber which did not work.  The taxi in Marrakesh is tricky, as we have been warned by literally every travel site.  From our observation, they operated more like mini-vans that collect passengers on their way.  Or, an endless  Uber-Pool with autonomous-control.  
@@ -58,14 +60,33 @@ Getting off our bus, we passed by a small park with plants and flowers, and almo
 
 ## The Riad
 
+![](https://live.staticflickr.com/65535/49001922828_389b658a06_z.jpg)
+
 While our path following the Google map got narrower and narrower, we wandering around to find our hotel.  A helpful old man sitting at the door of another hotel helped us with directions.
 
 We believe we picked a riad that was most beautiful and we believe many other guests made the selection based on the pictures posted online.  One thing we could say after staying there was that all the pictures did not adequately presented the true beauty and aura of the riad.
 
 ## The Souk
 
+![](https://live.staticflickr.com/65535/48997581252_6fc1562f6b_z.jpg)
+
+A souk is a traditional arabic market embedded in stone-walled narrow alleys.  The people in the medina are craftmen living on selling their skills to visitors.  The souk is the most dynamic and energic part of city with strick rules inside but no rules at all for guests to rely on.
+
+People around the world are attracted to cities like Marrakesh and Fez for the souk experience of seeking and finding gems then bagaining for a good price.
+
+The medina is an example of _coexistence-and-excellence_.  I saw a passing by moped bumped over a pile of merchants by accident while navigating the crowded ally but didn't realize it.  A guy from the next shop just came over and picked them up.  Nobody said a thing and no one was angry.  Life continues on.
+
+There are so many cats in the ally.  They are not bothered by the crowd at all.
+
 ## The Square
 
+![](https://live.staticflickr.com/65535/49002984441_fc4c762810_z.jpg)
+
+The Jemaa el-Fna Square is the de facto center of the city.  It is exotic in the day and cosy  at night.  
+
+![]( https://live.staticflickr.com/65535/49003166382_b74ceeaae0_z.jpg)
+
+![](https://live.staticflickr.com/65535/48998239782_9e8a40fe57_z.jpg)
 
 
 
