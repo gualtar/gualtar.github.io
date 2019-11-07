@@ -67,7 +67,17 @@ Getting off our bus, we passed by a small park with plants and flowers, and almo
 
 ![](https://live.staticflickr.com/65535/49001922828_389b658a06_z.jpg)
 
-While our path following the Google map got narrower and narrower, we wandering around to find our hotel.  A helpful old man sitting at the door of another hotel helped us with directions.
+While our path following the Google map got narrower and narrower, we wandered around to find our riad.  A riad is a traditional style of Moroccan house with an interior courtyard or a garden.  There was no obvious path to the hotel as the way it is marked on the Google Map.  The back alleys that lead to the deep medina are not on the map at all.  An old man sitting at the door of a _Hotel Saleme_ noticed we looked lost and helped us with directions.  Without his help, we would be in a big trouble.
+
+The door was tightly closed but it opened in two seconds after we knocked.  An old woman greeted us with smiles.  She showed us a booking records in a big notebook, without saying a word.  We did not find our names.  She then led us to a beautiful living area and showed us to sit.  Then she went to the kitchen.  After a long while, she emerged with a tray of mint tea in a delicate teapot.  The tea was very good.  Mint tea is the most sought after bebida in Morocco.  You tell the quality of a mint tea by the smell, taste, and the thickness of the color.
+
+The woman made a few phone calls and we sat there waiting.  After another long while, another woman rushed in.  She showed us the same notebook, and flipped pages for many more records and asked us to find our names.  We couldn't find our name.  Obviously both women couldn't read.  She made a few more phone calls while we continued to wait.  
+
+The courtyard of the riad is occupied entirely by a pool that you can step down, which is completed with a fountain on the wall.  The office is at the right next to the entrance door.  The living area is to the left.  A small dining area is next to the pool with walls decorated with two old guns.  There are an abundance of artifacts at every possible places and they are all there for a reason.  They are all tastefully chosen and contributed to the overall Moroccan aroma.  I saw two guests left their room on the first floor and took a picture.  From where they stood, the courtyard looked like this:
+
+![](https://live.staticflickr.com/65535/48997518717_609332dd6f_z.jpg)
+
+After a while, the first woman gestured us to follow her.  We were shown our room on the second floor.  It was the Atlas room.  She then showed us a shaded rooftop patio that had a view of the square.
 
 We believe we picked a riad that was most beautiful and we believe many other guests made the selection based on the pictures posted online.  One thing we could say after staying there was that all the pictures did not adequately presented the true beauty and aura of the riad.
 
