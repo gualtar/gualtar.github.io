@@ -1,6 +1,6 @@
 ---
 layout: post
-author: William's Wrestling Win
+title: William's Wrestling Win
 author: Xinlian
 ---
 
@@ -12,4 +12,4 @@ William won easily.
 
 ![](/images/IMG_20191004_201231.jpg)
 
-Afterwards, we went to a Chinese restaurant where they had an extensive menu of Chinese pastry.  William really like it and we would come back a few more times.
+Afterwards, we went to a Chinese restaurant where they had an extensive menu of Chinese pastries.  William really like it and we would come back a few more times.
