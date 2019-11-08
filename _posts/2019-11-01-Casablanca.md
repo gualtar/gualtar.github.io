@@ -85,7 +85,7 @@ We believe we picked a riad that was most beautiful and we believe many other gu
 
 ![](https://live.staticflickr.com/65535/48997581252_6fc1562f6b_z.jpg)
 
-A souk is a traditional arabic market embedded in stone-walled narrow alleys.  The people in the medina are craftmen living on selling their skills to visitors.  The souk is the most dynamic and energic part of city with strick rules inside but no rules at all for guests to rely on.
+A souk is a traditional Arabic market embedded in stone-walled narrow alleys.  The people in the medina are craftsmen living on selling their skills to visitors.  The souk is the most dynamic and energetic part of city with strict rules inside but no rules at all for guests to rely on.
 
 People around the world are attracted to cities like Marrakesh and Fez for the souk experience of seeking and finding gems then bagaining for a good price.
 
@@ -100,6 +100,13 @@ There are so many cats in the ally.  They are not bothered by the crowd at all.
 The Jemaa el-Fna Square is the de facto center of the city.  It is exotic in the day and cosy  at night.  
 
 ![]( https://live.staticflickr.com/65535/49003166382_b74ceeaae0_z.jpg)
+
+The backdrop is the Atlas Mountains, which stretches around 1,600 miles through Morocco, Algeria and Tunisia.  From near to afar, you see the square, the medina, and the Atlas.
+
+We walked into one of a few restaurant on the edge of the median with a good view of the square in setting son.
+
+
+Two Chinese looking youth took a table next to ours.  I asked them, and they said they were from Hong Kong.  I have ran into many youth from Hong Kong traveling alone before, in London, in Braga, and other places in their gap year.  A Wall Street Journal  news article [revealed](https://www.wsj.com/articles/hong-kong-tops-list-of-donors-to-u-s-schools-1411401637) that Hong Kong was the third largest donor to the US education institutions.  Between 2007 and 2013, Hong Kong donated $181 million to U.S. colleges, after U.K. ($147.6 million) and Canada ($136 million) but before India ($97.5 million), Saudi Arabia ($97 million) among others.  For reference, China donated $60.4 million and Japan donated $56.5 million in the same time frame.  I have full confidence in the vision of generations of Hong Kong people.  They will thrive.
 
 ![](https://live.staticflickr.com/65535/48998239782_9e8a40fe57_z.jpg)
 
