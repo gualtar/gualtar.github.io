@@ -95,20 +95,24 @@ There are so many cats in the ally.  They are not bothered by the crowd at all.
 
 ## The Square
 
-![](https://live.staticflickr.com/65535/49002984441_fc4c762810_z.jpg)
-
 The Jemaa el-Fna Square is the de facto center of the city.  It is exotic in the day and cosy  at night.  
 
 ![]( https://live.staticflickr.com/65535/49003166382_b74ceeaae0_z.jpg)
 
 The backdrop is the Atlas Mountains, which stretches around 1,600 miles through Morocco, Algeria and Tunisia.  From near to afar, you see the square, the medina, and the Atlas.
 
-We walked into one of a few restaurant on the edge of the median with a good view of the square in setting son.
+![](https://live.staticflickr.com/65535/49002984441_fc4c762810_z.jpg)
 
+We walked into one of a few fine restaurants on the edge of the median with a good view of the square in setting son.  I ordered a tajine and William got a pasta.  The pasta was not fully cooked but the tajine was tasty.  We got to sit at a premier place near the glass wall with a great overlook of the market.
 
-Two Chinese looking youth took a table next to ours.  I asked them, and they said they were from Hong Kong.  I have ran into many youth from Hong Kong traveling alone before, in London, in Braga, and other places in their gap year.  A Wall Street Journal  news article [revealed](https://www.wsj.com/articles/hong-kong-tops-list-of-donors-to-u-s-schools-1411401637) that Hong Kong was the third largest donor to the US education institutions.  Between 2007 and 2013, Hong Kong donated $181 million to U.S. colleges, after U.K. ($147.6 million) and Canada ($136 million) but before India ($97.5 million), Saudi Arabia ($97 million) among others.  For reference, China donated $60.4 million and Japan donated $56.5 million in the same time frame.  I have full confidence in the vision of generations of Hong Kong people.  They will thrive.
+Two Chinese looking youth took a table next to ours.  I asked them, and they said they were from Hong Kong.  I have ran into many youth from Hong Kong traveling alone before, in London, in Braga, and other places in their gap year.  A Wall Street Journal  news article [revealed](https://www.wsj.com/articles/hong-kong-tops-list-of-donors-to-u-s-schools-1411401637) that Hong Kong was the third largest donor to the US education institutions.  Between 2007 and 2013, Hong Kong donated $181 million to U.S. colleges, after U.K. ($147.6 million) and Canada ($136 million) but before India ($97.5 million), Saudi Arabia ($97 million) among others.  For reference, China donated $60.4 million and Japan donated $56.5 million in the same time frame.  Those who look down on the youth from Hong Kong in their fight for freedome are terribly misinformed and deserve to be reeducated.  I have full confidence in the vision of generations of Hong Kong people.  They will thrive.
 
 ![](https://live.staticflickr.com/65535/48998239782_9e8a40fe57_z.jpg)
 
+Following the guideline of keeping a low profile and disengaging at all cost, our experiences so far had been hassle free except a shoeshiner on the market.  Leaving William at the hotel, I went out for some true local taste around 10 pm.  The market square was occupied by food tables.  There are guys who invite you to sit down so I did.  I was arranged to sit next to a big group of French tourists.   They were obviously having a wonderful time as the guys kept brining them small and interesting looking dishes and sometimes made fun of them, such as giving them a fake dish with a plastic snake on a tomato in a tajine pot. "We have no idea what are they talking about, " one guy warned me.  He said this was the first time he came to Morocco despite it was a popular tourists destination for French people.  "They speak French but when they need privacy they switch to another language".  I ordered a lamp chop for 50 dirhams.  It must be the most oily food I had had but unsurprising given the similarly oily food I tasted before in Xinjiang.  When I was done, the Frenchman warned me again, "be careful".  The waiter showed up and demanded 100 dirhams for his tips.  I happily haggled with the waiter.  It went intensive at time, but we settled at 20 dirhams while the French group look in concern.  We parted our way hugged and kissed and felt like long lost brothers.
 
+It was almost midnight while I got back.  The crowds in the street had been trimmed by the darkness.  As I walked into back alleys I could sense many wary eyes on my back.  I knocked on the gate of my riad and the owner showed up in a second.  Guests do not have keys to the main gate.  Obviously the owner planned to stay up the whole night to wait for knocks of late-returning guests.
 
+From the rooftop patio, I could see the market was still full of people.  The music and other sounds would continue to the next morning.
+
+The owner is a young man.  From the way the hotel is maintained and operated, he deserved every dollar he made out of this business.
