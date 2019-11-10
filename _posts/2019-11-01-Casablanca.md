@@ -37,7 +37,7 @@ The main hall is amazing.  It holds 20,000 men, with capacity for additional 5,0
 
 We were instructed to put on our shoes upon exit of the main hall.   Our tour guide gave some remarks on the steps.  With the leaning sunlight, it almost felt like she was addressing at the Roman Senate.
 
-![](src="https://live.staticflickr.com/65535/49042410651_9c55e57845_z.jpg)
+![](https://live.staticflickr.com/65535/49042410651_9c55e57845_z.jpg)
 
 Afterwards, we were led to the lower level beneath which was a huge and spectacular washroom.  The center part of the main hall right above is a river with glass bottom.  Water is a center of inspiration of life.  The mosque is located by the Atlantic Ocean to echo that the 'throne was on the water'.
 
@@ -61,45 +61,47 @@ After the train crossed the Oum Er-Rbia River, we saw deserts.
 
 When our train reached Merrakesh station, passengers for the next trip were already waiting to get on.  We quickly departed the carriage.
 
-Careem does not work in Merrakesh.  Just in case, we also tried Uber which did not work.  The taxi in Marrakesh is tricky, as we have been warned by literally every travel site.  From our observation, they operated more like mini-vans that collect passengers on their way.  Or, an endless  Uber-Pool with autonomous-control.  
+Careem does not work in Merrakesh.  Just in case, we also tried Uber which did not work.  The taxi in Marrakesh is tricky, as warned by literally every travel site.  From our observation, they operated more like mini-vans that collect passengers on their way.  Or, an endless Uber-Pool with autonomous-control.  
 
-Thanks to Google Map, we got on the bus, which took us to the Jamaa El Fna stop.  It was as close as we can get to our hotel, a traditional riad embedded deep into the old city or medina.
+Thanks to Google Map, we got on a bus, which took us to the Jamaa El Fna stop.  It was as close as we can get to our hotel, a traditional riad embedded deep into the old city or medina.
 
-Getting off our bus, we passed by a small park with plants and flowers, and almost get lost in a big square where we saw people with monkeys and snake charmes with real cobras! They were many sources of competing loud music and we would later learn that they would go on the entire day and night.
+Getting off our bus, we passed by a small park with plants and flowers, and almost get lost in a big square where we saw African dancers, monkeys handlers, and snake charmes with real cobras roaming around! They were many sources of competing loud music and we would later learn that they would go on the entire day and night.
 
 ## The Riad
 
 ![](https://live.staticflickr.com/65535/49001922828_389b658a06_z.jpg)
 
-While our path following the Google map got narrower and narrower, we wandered around to find our riad.  A riad is a traditional style of Moroccan house with an interior courtyard or a garden.  There was no obvious path to the hotel as the way it is marked on the Google Map.  The back alleys that lead to the deep medina are not on the map at all.  An old man sitting at the door of a _Hotel Saleme_ noticed we looked lost and helped us with directions.  Without his help, we would be in a big trouble.
+While our path following the Google map got narrower and narrower, we wandered around to find our riad.  A riad is a traditional style of Moroccan house with an interior courtyard or a garden.  There was no obvious path to the hotel as the way it is marked on the Google Map.  The back alleys that lead to the deep medina are not drawn on the map at all.  An old man sitting at the door of a _Hotel Saleme_ noticed we looked lost and helped us with directions.  Without his help, we would be in a big trouble.  We went back to read the _median survival guide_ on _do not accept help from anyone_ rule and noticed there was another rule following it: _ask help from shop owners_.
 
-The door was tightly closed but it opened in two seconds after we knocked.  An old woman greeted us with smiles.  She showed us a booking records in a big notebook, without saying a word.  We did not find our names.  She then led us to a beautiful living area and showed us to sit.  Then she went to the kitchen.  After a long while, she emerged with a tray of mint tea in a delicate teapot.  The tea was very good.  Mint tea is the most sought after bebida in Morocco.  You tell the quality of a mint tea by the smell, taste, and the thickness of the color.
+The black gate was tightly closed but it opened in two seconds after we knocked.  An old woman greeted us with smiles.  She showed us booking records in a big notebook, without saying a word.  We did not find our names.  She then led us to a beautiful living area and gestured us to sit.  Then she went in the kitchen without saying a word.  After a long while, she emerged with a tray of mint tea in a delicate teapot.  She poured us two glasses of tea, again without saying a word.  The tea was very good.  Mint tea is the most sought after bebida in Morocco.  You tell the quality of a mint tea by the smell, taste, and the thickness of the color.
 
-The woman made a few phone calls and we sat there waiting.  After another long while, another woman rushed in.  She showed us the same notebook, and flipped pages for many more records and asked us to find our names.  We couldn't find our name.  Obviously both women couldn't read.  She made a few more phone calls while we continued to wait.  
+The woman made a few phone calls and we sat there waiting.  After another long while, another manager-looking woman rushed in.  She showed us the same notebook, and flipped pages for many more records and asked us to find our names.  We couldn't find our name.  Obviously both women couldn't read.  She made a few more phone calls while we continued to wait.  We saw they were using several phones at the same time.
 
-The courtyard of the riad is occupied entirely by a pool that you can step down, which is completed with a fountain on the wall.  The office is at the right next to the entrance door.  The living area is to the left.  A small dining area is next to the pool with walls decorated with two old guns.  There are an abundance of artifacts at every possible places and they are all there for a reason.  They are all tastefully chosen and contributed to the overall Moroccan aroma.  I saw two guests left their room on the first floor and took a picture.  From where they stood, the courtyard looked like this:
+The courtyard of the riad is occupied entirely by a pool that you can step down, which is completed with a fountain on the wall.  The office is on the right, next to the entrance door.  The living area is to the left.  A small dining area is on the fourth side next to the pool with walls decorated with two old guns.  There are an abundance of artifacts at every possible places.  They are all tastefully chosen and contributed to the overall Moroccan aroma.  I saw two guests left their room on the first floor and took a picture.  From where they stood, the courtyard looked like this:
 
 ![](https://live.staticflickr.com/65535/48997518717_609332dd6f_z.jpg)
 
-After a while, the first woman gestured us to follow her.  We were shown our room on the second floor.  It was the Atlas room.  She then showed us a shaded rooftop patio that had a view of the square.
+After a while, the first woman gestured us to follow her.  We were shown our room on the second floor.  It was the Atlas room.  We are next to the Kutubiyya room.  She then showed us a shaded rooftop patio that had a view of the square.
 
-We believe we picked a riad that was most beautiful and we believe many other guests made the selection based on the pictures posted online.  One thing we could say after staying there was that all the pictures did not adequately presented the true beauty and aura of the riad.
+We believe we picked a riad that was most beautiful and we believe many other guests made the selection based on the pictures posted online.  One thing we could say after staying there for one night was that all the pictures did not adequately present the true beauty and charm of the riad.
 
 ## The Souk
 
 ![](https://live.staticflickr.com/65535/48997581252_6fc1562f6b_z.jpg)
 
-A souk is a traditional Arabic market embedded in stone-walled narrow alleys.  The people in the medina are craftsmen living on selling their skills to visitors.  The souk is the most dynamic and energetic part of city with strict rules inside but no rules at all for guests to rely on.
+A souk is a traditional Arabic market embedded in stone-walled narrow alleys.  The people in the medina are craftsmen living on selling their skills to visitors.  The souk is the most dynamic and energetic part of city, with rigorous principals for locals to practice but no rules at all for visitors to follow.
 
-People around the world are attracted to cities like Marrakesh and Fez for the souk experience of seeking and finding gems then bagaining for a good price.
+People around the world are attracted to cities like Marrakesh and Fez for the souk experience of seeking and finding gems then haggling for a good price.
 
-The medina is an example of _coexistence-and-excellence_.  I saw a passing by moped bumped over a pile of merchants by accident while navigating the crowded ally but didn't realize it.  A guy from the next shop just came over and picked them up.  Nobody said a thing and no one was angry.  Life continues on.
+The medina is an example of _coexistence-and-excellence_.  I saw a passing by moped bumped over a pile of merchants by accident while navigating the crowded ally but kept going on.  The shop owner looked from afar but did not move.  A guy from the next shop just came over and picked them up.  Nobody said a thing and no one was angry.  Life continues on.
 
-There are so many cats in the ally.  They are not bothered by the crowd at all.
+![](https://live.staticflickr.com/65535/48996969758_f9ef477f7f_z.jpg)
+
+There are so many cats in the ally.  They are not bothered by the crowd at all.  They are different from cats in America.  They are all very slim.  They will not walk to you for petting, and they will not walk away from people or even traffic.  They hold their ground, totally ignoring the external world.
 
 ## The Square
 
-The Jemaa el-Fna Square is the de facto center of the city.  It is exotic in the day and cosy  at night.  
+The Jemaa el-Fna Square is the de facto center of the city.  It was listed as an UNESCO site as a _Masterpiece of the oral and intagible heritage of humanity_.  It is exotic in the day and cosy  at night.  
 
 ![]( https://live.staticflickr.com/65535/49003166382_b74ceeaae0_z.jpg)
 
@@ -107,15 +109,15 @@ The backdrop is the Atlas Mountains, which stretches around 1,600 miles through 
 
 ![](https://live.staticflickr.com/65535/49002984441_fc4c762810_z.jpg)
 
-We walked into one of a few fine restaurants on the edge of the median with a good view of the square in setting son.  I ordered a tajine and William got a pasta.  The pasta was not fully cooked but the tajine was tasty.  We got to sit at a premier place near the glass wall with a great overlook of the market.
+We walked into one of a few fine dining restaurants on the edge of the median with a good view of the square in setting son.  I ordered a tajine and William got a pasta.  The pasta was not fully cooked but the tajine was tasty.  We got to sit at a premier table near the glass wall with a great overlook of the market.
 
-Two Chinese looking youth took a table next to ours.  I asked them, and they said they were from Hong Kong.  I have ran into many youth from Hong Kong traveling alone before, in London, in Braga, and other places in their gap year.  A Wall Street Journal  news article [revealed](https://www.wsj.com/articles/hong-kong-tops-list-of-donors-to-u-s-schools-1411401637) that Hong Kong was the top among the largest donors to the US education institutions.  Between 2007 and 2013, Hong Kong donated $181 million to U.S. colleges, followed by U.K. ($147.6 million), Canada ($136 million), India ($97.5 million), Saudi Arabia ($97 million) among others.  For reference, China donated $60.4 million and Japan donated $56.5 million in the same time frame.  Those who look down on the youth from Hong Kong in their fight for freedom are terribly misinformed and deserve to be reeducated.  I have full confidence in the vision of generations of Hong Kong people.  They will thrive.
+Two Chinese looking youth took a table next to ours.  I asked them, and they said they were from Hong Kong.  I have ran into many youth from Hong Kong traveling alone, in London, in Braga, and other places in their gap year.  As a matter of face, out of my limited sampling, all Chinese looking young tourists I ran into in the last few months were from Hong Kong.  A Wall Street Journal  news article [revealed](https://www.wsj.com/articles/hong-kong-tops-list-of-donors-to-u-s-schools-1411401637) that Hong Kong was the top among the largest donors to the US educational institutions.  Between 2007 and 2013, Hong Kong donated $181 million to U.S. colleges, followed by U.K. ($147.6 million), Canada ($136 million), India ($97.5 million), Saudi Arabia ($97 million) among others.  For reference, China donated $60.4 million and Japan donated $56.5 million in the same time frame.  With a deep dedication to education and a rich experience as well as open-mind, youth in Kong Hong are posed to well positioned to steer their own journey.  Those who look down on the youth from Hong Kong in their fight for freedom are terribly misinformed and deserve to be reeducated.  They will thrive in their city or anywhere in the world.
 
 ![](https://live.staticflickr.com/65535/48998239782_9e8a40fe57_z.jpg)
 
-Following the guideline of keeping a low profile and disengaging at all cost, our experiences so far had been hassle free except a shoeshiner on the market.  Leaving William at the hotel, I went out for some true local taste around 10 pm.  The market square was occupied by food tables.  There are guys who invite you to sit down so I did.  I was arranged to sit next to a big group of French tourists.   They were obviously having a wonderful time as the guys kept brining them small and interesting looking dishes and sometimes made fun of them, such as giving them a fake dish with a plastic snake on a tomato in a tajine pot. "We have no idea what are they talking about, " one guy warned me.  He said this was the first time he came to Morocco despite it was a popular tourists destination for French people.  "They speak French but when they need privacy they switch to another language".  I ordered a lamp chop for 50 dirhams.  It must be the most oily food I had had but unsurprising given the similarly oily food I tasted before in Xinjiang.  When I was done, the Frenchman warned me again, "be careful".  The waiter showed up and demanded 100 dirhams for his tips.  I happily haggled with the waiter.  It went intensive at time, but we settled at 20 dirhams while the French group look in concern.  We parted our way hugged and kissed and felt like long lost brothers.
+Following the guideline of keeping a low profile and disengaging at all cost, our experiences so far had been hassle free except an encounter with a shoeshiner on the market.  Leaving William at the hotel, I went out for some true local taste around 10 pm.  The market square was occupied by endless long tables and they were all full with patrons.  There are menu-waving guys who would invite everyone passing-by to sit down so I did.  I was arranged to sit next to a big group of young French tourists.   They were obviously having a wonderful time as the waiters kept brining them small and interesting looking dishes and sometimes made fun of them, such as giving them a fake dish with a plastic snake on a tomato in a tajine pot. "We have no idea what are they talking about, " one guy warned me.  He said this was the first time he came to Morocco despite it was a popular tourists destination for French people.  "They speak French but when they need privacy they switch to another language".  I ordered a lamp chop for 50 dirhams.  It must be the most oily food I had had but unsurprising given the similarly oily food I tasted before in northwest China.  When I was done, the Frenchman warned me again, "be careful".  The waiter showed up and demanded 100 dirhams for his tips.  With full mental expectation, I joyfully bargained with the waiter.  It went intensive at time with harsh words and serious threats, but we settled on 20 dirhams while the French group quietly looked in concern.  The waiter and I parted our way hugged and kissed and felt like long lost brothers.
 
-It was almost midnight while I got back.  The crowds in the street had been trimmed by the darkness.  As I walked into back alleys I could sense many wary eyes on my back.  I knocked on the gate of my riad and the owner showed up in a second.  Guests do not have keys to the main gate.  Obviously the owner planned to stay up the whole night to wait for knocks of late-returning guests.
+It was almost midnight while I got back.  The crowds in the street had been trimmed by the darkness.  As I walked into back alleys I could sense many wary eyes on my back.  I knocked on the gate of my riad and the owner showed up in a second.  Guests do not have keys to the main gate.  Obviously the owner planned on staying up the whole night to wait for knocks of late-returning guests.
 
 From the rooftop patio, I could see the market was still full of people.  The music and other sounds would continue to the next morning.
 
