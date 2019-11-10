@@ -4,52 +4,56 @@ title: As Time Goes By
 author: Xinlian
 ---
 
-Contrary to some online sources, the origin of the name _Casablanca_ is Portuguese, not Spanish.  I was happy to learn about this because it seems to make it closer to home.
+Contrary to some online sources, the origin of the name _Casablanca_ is Portuguese, not Spanish.  I was happy to learn about this because it seems to bring it closer to home.
 
-We woke up to the magnificence of the Hassan II Mosque from our balcony:
+We woke up by the Call to Prayer, and were awed by the magnificence of the Hassan II Mosque from our balcony:
 ![](https://live.staticflickr.com/65535/48994190018_f16d64cc46_z.jpg)
 
-The hotel breakfast was impressive with plenty of varieties of local flavors and made-to-order omelet.  I saw two young women enjoying their breakfast in very dressy dresses and minutes later saw them again checking-out with 80L daypacks.  Only in Morocco, I guess.
+The lobby and dining area were decorated with Halloween lamps and pumpkin patches.  The hotel breakfast was impressive with plenty of local varieties and made-to-order omelet.  I saw two young women enjoying their breakfast in very dressy dresses and minutes later saw them again checking-out with 80L daypacks.  Only in Morocco, I guess.
 
 ## The Hassan II Mosque
 
-We walked toward the mosque but obviously it was not the common tourists entry.  There were quite some policemen with full-length assault rifles guarding the place.  They saluted to senior officers as they drove around checking security.  We saw a large number of armed soldiers and policemen at the airports, rail stations, and palaces.  
+We walked toward the mosque but obviously it was not the common tourists entry.  There were quite some policemen with full-length assault rifles guarding the place.  They saluted to senior officers as they drove around checking security.  We saw a large number of armed soldiers and policemen at the airports, rail stations, and palaces.  William was concerned on what made them deploy so many armed guards.  It reminded me my childhood in Beijing where there were soldiers patrolling Zhongguancun, the academic triangle of Beijing University, Qinghua University, and Chinese Academy of Sciences,  on foot and soldiers posted at almost all government agencies.  Over the past decades in China all of them have been replaced by securities guards because soldiers in a professional army are too expensive to be wasted for security duties.
 
-The mosque only accept grouped tours.  A guide is provided for individual tourists at certain times in a day outside of time to pray.  We arrived at around 9:20 am.  While waiting for our tour at 10, we visited a small museum at the visitor center.  We saw some international tourists entered the museum without purchasing a ticket.  They were located by the security guard and escorted out of the property.  The museum tickets are only a couple of dollars.  You would wonder why did they do that.  Perhaps just because they could.
+The mosque only accepts guided group tours.  A guide is provided for individual tourists at certain times in a day outside of time to pray.  We arrived at around 9:20 am.  While waiting for our tour at 10, we visited a small museum at the visitor center.  We saw some international tourists entered the museum without purchasing a ticket.  They were located by the security guard and escorted out of the property.  The museum tickets are only a couple of dollars.  You would wonder why did they do that.  Perhaps just because they could.
 
 ![](https://live.staticflickr.com/65535/48999486281_2bc176b5a1_z.jpg)
 
-The museum talked about the construction of the mosque with samples of building materials and design styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.
+The museum gives a history of the construction of the mosque with samples of building materials and design styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.  The museum has a dated but clean restroom as emphasized by almost every tour guide when talking about the mosque.  We can confirm that.
 
-Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  
+Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  In tradition, a fountain carries significant social functions.  The medina in Morrocan cities are divided into sub-communities with each one completed by a mosque and a fountain.  
 
 ![](https://live.staticflickr.com/65535/48998437842_d14e8a29be_z.jpg)
 
 From afar, we could see the El Hank lighthouse in the morning mist.  It was built in 1916 and towering at 167 ft high.  That was where you find the beach of Casablanca, that you can reach by light rail lines.
 
-People were started letting in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said he just ignored all the locals who had hassled him into things and tricks.  "Just don't trust them."
+People were started being let in the mosque.  There were posted signs for tourists speaking different languages.  While waiting for people to gather, we ran into a young man from Colorado who was traveling alone.  He blended in the local life very well with only a half-empty shopping bag in hand.  He said he had been in Morocco for ten days and would go to Fez in the afternoon.  I asked about his experience in Marrakesh.  He said it was great.  He ignored all the locals who had hassled him into things and tricks.  "Whatever they say in the end they would ask for money.  Just don't trust them."
 
 ![](https://live.staticflickr.com/65535/48999692602_458fe862ef_z.jpg)
 
-The main hall is amazing.  It holds 20,000 men, with capacity for additional 5,000 women in a separate section.  It was deigned by a French architect who was the friend of the king and made of all Morocco materials except the chandeliers and two white columns.  
+The main hall is amazing.  It holds 20,000 men, with capacity for additional 5,000 women in a separate section.  It was deigned by a French architect who was a friend of the king and made of all Moroccan materials except the chandeliers and two white columns.  
 
-Afterwards, we were led to the level beneath which was a huge wash room.
+![](https://live.staticflickr.com/65535/49042412811_2a0a2c46a4_z.jpg)
+
+We were instructed to put on our shoes upon exit of the main hall.   Our tour guide gave some remarks on the steps.  With the leaning sunlight, it almost felt like she was addressing at the Roman Senate.
+
+![](src="https://live.staticflickr.com/65535/49042410651_9c55e57845_z.jpg)
+
+Afterwards, we were led to the lower level beneath which was a huge and spectacular washroom.  The center part of the main hall right above is a river with glass bottom.  Water is a center of inspiration of life.  The mosque is located by the Atlantic Ocean to echo that the 'throne was on the water'.
 
 ![](https://live.staticflickr.com/65535/48995053913_f6b688c3fc_z.jpg)
 
-Our tour guide gave some final remarks on the steps.  
-
 As we walked out of the mosque, the weather was just perfect.
 
-We checked out of our hotel and got another Careem to get to the Casa Voyageurs train station, which was the main train station of Casablanca and was further away from us.  Our captain spoke good English and explained to us the differences between the small red taxis and larger white-and-green taxis.  Red taxis can only go to local destinations while the larger ones can go to other places.  William also observed that the larger ones were kept in better conditions in general.  We saw some boys fighting and saw taxi drivers chatting to each other at traffic lights.  However, it was no worse than the condition of some major Chinese cities such as Beijing and Tianjin when I left China over 20 years ago.  We never felt unsafe in China.  Numbers will show Casablanca is a safer place.
+We checked out of our hotel and got another Careem to get to the Casa Voyageurs train station, which was the main train station of Casablanca and was further away from us.  Our captain spoke good English and explained to us the differences between the small red taxis and larger white-and-green taxis.  The red taxis can only go to local destinations while the larger ones can go to other places.  William also observed that the larger ones were kept in better conditions in general.  We saw some boys fighting in the street and saw taxi drivers chatting to each other at traffic lights.  However, it was no worse than the condition of some major Chinese cities such as Beijing and Tianjin when I left China over 20 years ago.  We never felt unsafe in China.  Numbers will show Casablanca is a safer place.
 
 ## The Train Ride
 
-Our six-seats quarter was occupied by a family of three, an middle-age man, and us.  A young man from France was taking one seat but later moved out as he had no to the adjacent quarter as he had no ticket.  Two hours into our journey, a local old man angrily stopped another young man with American accent, accusing him of cheating him out of his seats.  Obviously the young man told the old man he had a ticket to the same seat.  So far it seemed all the outlaws were foreigners.  There was no air-conditioning.  It was hot.
+Our six-seats quarter was occupied by a family of three (two young woman and a little girl), an middle-age man, and us.  A young man from France was taking one seat but later moved out to the adjacent quarter as he had no ticket.  Two hours into our journey, a local old man angrily stopped another young man with American accent, accusing him of cheating him out of his seat in the next quarter.  The young man told the old man he had a ticket to the same seat.  So far it seemed all the outlaws were foreigners.  There was no air-conditioning and no airflow.  It was hot.
 
-The little girl was very cute.  She was about four or five years old and was doing homework through the entire journey.  She also tried to practice her English with me.  The old man was sleeping all the way, using a towel to cover his face from the lights.
+The little girl was very cute.  She was about four or five years old and was doing homework throughout the entire journey.  She poked me with a small stick.  Her Mom stopped her and explained to me that the girl was trying to talk to me in English but she only knew a few words.  She told the girl, you could speak Spanish.  I was not sure why they thought Spanish might work on me so I started taking in Japanese for fun.   Later, she tried to poke the middle age local man.  The man was sleeping all the way, using a towel to cover his face from the outside world.
 
-We crossed the Oum Er-Rbia River, we saw deserts.
+After the train crossed the Oum Er-Rbia River, we saw deserts.
 
 ![](https://live.staticflickr.com/65535/48997596171_b6dd9dc8c3_z.jpg)
 
