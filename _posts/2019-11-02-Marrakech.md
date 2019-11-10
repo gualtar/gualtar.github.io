@@ -26,13 +26,53 @@ At the place marked on Google Map, we found two instead of one ATMs belonging to
 
 We passed many souks that look interesting and exotic.
 
+![](https://live.staticflickr.com/65535/49003095672_a49922a73c_z.jpg)
+
+The souks spread along narrow alleys with two tall stone walls on the side and a roof that guards against rain and shine.  You would walk a long while without seeing an open sky.
+
+![](https://live.staticflickr.com/65535/49002006773_b5de1cc5e5_z.jpg)
+
+At one intersection this cafe stood out tall.  Later I learned that the blue is a patented color of Marrakesh.
+
+![](https://live.staticflickr.com/65535/49002771947_5db8b76cca_z.jpg)
+
+The son of Joseph School was closed for renovation for the entire year.  
+
+![](https://live.staticflickr.com/65535/49002652856_f60194de85_z.jpg)
+
+We opted for the Museum of Marrakech right next door.  The museum looks small from outside, but have a wide range of exhibitions from modern art to tradition craftsmanship, historic artifacts, and architectural styles.
+
+https://live.staticflickr.com/65535/49002068403_5da87a536c_z.jpg
+
+In the gift shop, I bought a graph book of Marrakesh.  I tried to bargain on the price, which made the staff laugh.  "You should always bargain hard in the souks, but not here," he told me.
+
 ## Back to Casablancce
 
-I took a picture when our train crossed the river.
+![](https://live.staticflickr.com/65535/49001812163_5e1b99ae69_z.jpg)
+
+The Marrakesh train station was a true beauty.  On the front, it has the majestic grandeur and simplicity of Moroccan style, while on the other side, the platform merged into the surroundings.  
+
+![](https://live.staticflickr.com/65535/49001822503_50725b1ce7_z.jpg)
+
+Passengers waiting for their train may enjoy a mint tea at the rooftop patio with a view of the platform embedded in palm trees.
+
+![](https://live.staticflickr.com/65535/49003079967_251c75e5bf_z.jpg)
+
+The plain looks flat but is actually not.  Our train cut through many slowly rolling hills like this all the way between Marrakesh and Casablanca.
+
+![](https://live.staticflickr.com/65535/49002331478_40476ef45a_z.jpg)
+
+I saw a site which looked like a plant for construction materials.
+
+![](https://live.staticflickr.com/65535/49002445282_1330bea3e6_z.jpg)
+
+I took a picture when our train crossed the river.  Inland Morocco has been under a negative influence of the climate change.  I read that 80% of their oasis has disappeared in the last few decades and palm tree have become endangered.
 
 ## The Mall
 
 After checking in our hotel, my plan was to go to the Rick's Cafe, whose name was a reference to movie Casablanca.  Looking up on Google Map, the popular restaurant wouldn't open until one hour later at 6:30, and we have had difficulties calling taxis with the Careem App.  We decided to go to a Chinese restaurant shown on the map not too far away from us.  
+
+![](https://live.staticflickr.com/65535/49002846146_ab51e807b0_z.jpg)
 
 The Chinese restaurant turned out to be at the food court of a huge modern mall.  The chefs were local people.  It was actually a noodles place with Japanese dishes.  It took them 15 minutes to cook my noodles.  The noodle had a lot of room for improvement and the tempura I order for William was totally charred.  We noticed the price at the mall were on par, if not higher than that of an urban US mall.  We bought a bluetooth headphone at a Japanese store with cash we had left.  This would turn out to be smart.  We would learn that shops at the airport do not accept only currency in the next morning on our way back.
 
