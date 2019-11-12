@@ -22,7 +22,7 @@ The mosque only accepts guided group tours.  A guide is provided for individual 
 
 The museum gives a history of the construction of the mosque with samples of building materials and design styles.  It is a good source of information, which will be appreciated even more after visiting the actual mosque.  The museum has a dated but clean restroom as emphasized by almost every tour guide when talking about the mosque.  We can confirm that.
 
-Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  In tradition, a fountain carries significant social functions.  The medina in Morrocan cities are divided into sub-communities with each one completed by a mosque and a fountain.  
+Close to 10 am, people started gathering around the entrance which was located to the west side of the main hall.  Some lined up to take photos with mosaic-decorated fountains.  In tradition, a fountain carries significant social functions.  The medina in Moroccan cities are divided into sub-communities with each one completed by a mosque and a fountain.  This reminds me of the Temperance Foundation and Dr. Cogswell, whose tomb I visited in the mountain view cemetery in Oakland.
 
 ![](https://live.staticflickr.com/65535/48998437842_d14e8a29be_z.jpg)
 
