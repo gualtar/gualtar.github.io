@@ -4,7 +4,9 @@ title: The Atlas
 author: Xinlian
 ---
 
-We selected Casablanca to go for William's Halloween break because Morocco was the closet destination out of the Schengen Visa area.  We hoped a new visa stamp will reset William's 90 days clock for visa-less stay in Portugal.  We had never heard of Marrakesh until our Fulbrighter friend Dr. Biswas reminded us of it.  Having completed our Morocco trip, we realized how lucky we were.  Had we not gone to Marrakesh, it would be like not having been to Morocco at all.
+Atlas is the name of the room we stayed a night at the Riad of Rubis in Marrakesh.
+
+We came to  Casablanca for William's Halloween break because Morocco was the closet destination out of the Schengen Visa area.  We hoped a new visa stamp will reset William's 90 days clock for visa-less stay in Portugal.  We had never heard of Marrakesh until our Fulbrighter friend Dr. Biswas reminded us of it.  Having completed our Morocco trip, we realized how lucky we were.  Had we not gone to Marrakesh, it would be like not having been to Morocco at all.
 
 ## The morning
 
@@ -42,7 +44,7 @@ The son of Joseph School was closed for renovation for the entire year.
 
 We opted for the Museum of Marrakech right next door.  The museum looks small from outside, but have a wide range of exhibitions from modern art to tradition craftsmanship, historic artifacts, and architectural styles.
 
-https://live.staticflickr.com/65535/49002068403_5da87a536c_z.jpg
+![](https://live.staticflickr.com/65535/49002068403_5da87a536c_z.jpg)
 
 In the gift shop, I bought a graph book of Marrakesh.  I tried to bargain on the price, which made the staff laugh.  "You should always bargain hard in the souks, but not here," he told me.
 
@@ -55,6 +57,8 @@ The Marrakesh train station was a true beauty.  On the front, it has the majesti
 ![](https://live.staticflickr.com/65535/49001822503_50725b1ce7_z.jpg)
 
 Passengers waiting for their train may enjoy a mint tea at the rooftop patio with a view of the platform embedded in palm trees.
+
+Unlike what I saw an endless earth surface on my trips to the northwest China, Morocco's farmers seems to be living a good life.  Looking down from the flight when we came two days before, the plain was dotted with small villas with walls.  Close observation from my train windows is the same.
 
 ![](https://live.staticflickr.com/65535/49003079967_251c75e5bf_z.jpg)
 
