@@ -9,3 +9,5 @@ The CLIB school is about 15 minutes uphill from the University.  I often cut thr
 ![](https://live.staticflickr.com/65535/49064064751_121eabfd1f_z.jpg)
 
 I would later saw the vans running around picking up residents from their homes in the morning.  Gultar was an rural parish.  It's infrastructure is excellent.  I would say it's better than that of the Yanbeiyuan, a community of professors of Beijing University in Beijing and Tianhuali, a community of professors in Tianjin.
+
+On my way, I also walk past many townhouses of the local villagers.  The common traits of all of them are flowers.  It's like waking on most expensive residential streets in San Francisco.  Local people's love on flowers can never be overstated.
