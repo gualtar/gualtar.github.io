@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Friday morning Coffee
-title: Xinlian
+author: Xinlian
 ---
 
 Yesterday I woke up with a headache and had a scratchy throat throughout the day.  It got better this morning but had some serious muscle pain in my back.  I guess I just had a mild flu.  Perhaps William passed that on to me.
