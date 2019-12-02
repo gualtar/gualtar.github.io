@@ -11,3 +11,5 @@ Anna posted a note in the WhatsApp group for expats for a Friday morning coffee.
 I was introduced as "William's Dad".  Eight people showed up.  We talked about the weather, the rain, and cultural experiences.  Except me, they were all veteran expats who had lived in multiple countries.  One person complained about pain.  A person offered to give her some substances from Egypt that was totally legal but extremely effective.  I hope it was not a kind of the substances flowing from China to the US, that were only recently outlawed by the US.
 
 After lunch, the lab was in particularly in a Friday mood, to the point I asked what was happening.  It was the Black Friday.  Of course.
+
+Learned another new word, cheiro.  Despite waiting for 30 minutes in rain, the first two buses that came were both cheiro, which means full and no longer allow extra riders.
